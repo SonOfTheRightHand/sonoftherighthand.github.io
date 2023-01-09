@@ -1,1 +1,1 @@
-# sonoftherighthand.github.io
+# SonOfTheRightHand.github.io
